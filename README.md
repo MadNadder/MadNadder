@@ -31,9 +31,8 @@ Dinosaurs, Path of Titans, Warrior Cats, How To Train Your Dragon + School of Dr
 
   I don't have many boundaries; you can boop, cuddle, sit with me - I don't care ^^ Only thing to add, please don't try roleplaying with me, I'm not interested in that type of stuff.
 
- I tend to be tabbed out in-game; if you really want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or just very tired.
-
- My statuses are self-explanatory: Online, active - Away, offtab - Busy, AFK!
+ If you want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or away from my device.
+ My statuses are self-explanatory: Online, active - Away, away/AFK - Busy, AFK!
 
  I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k" 'n shit
 

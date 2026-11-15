@@ -17,7 +17,7 @@ Hello, call me Nikora! I'm usually just sitting around doing nothing in-game. I 
 <Details>
 <summary>Interests</summary>
  
-Dinosaurs, Path of Titans, Warrior Cats, How To Train Your Dragon + School of Dragons, Epic the musical, Arcane, Left 4 Dead, TF2, The Walking Dead, Supernatural, Good Omens, StarKid TGWDLM + Nightmare Time, Impractical Jokers, Jurassic Park/World, Game of Thrones
+Dinosaurs, Path of Titans, Warrior Cats, How To Train Your Dragon + School of Dragons, Epic the musical, Arcane, Left 4 Dead, TF2, The Walking Dead, Supernatural, Good Omens, StarKid TGWDLM + Nightmare Time, Impractical Jokers, Jurassic Park/World, Game of Thrones/ASOIAF
 </details>
 
 

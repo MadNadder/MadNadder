@@ -25,16 +25,14 @@ Dinosaurs, Path of Titans, Warrior Cats, How To Train Your Dragon + School of Dr
 <Details>
 <summary>Ponytown</summary>
 
- I may be a bit awkward when first talking to someone, I don't chat with people too often!
-
  I do not accept random friend requests. Don't be upset if I decline if we haven't spoken at least once.
 
   I don't have many boundaries; you can boop, cuddle, sit with me - I don't care ^^ Only thing to add, please don't try roleplaying with me, I'm not interested in that type of stuff.
 
  If you want my attention, whisper me. Please don't take silence as me ignoring you, I'm most likely off-tab or away from my device.
- My statuses are self-explanatory: Online, active - Away, away/AFK - Busy, AFK!
+ My statuses are self-explanatory: Online = active, Away = away/AFK, Busy = AFK!
 
- I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k" 'n shit
+ I may not befriend you if you're a VERY dry chatter, unfortunately - I try my best to be very expressive through my text and I just get a lil bored talking to people constantly saying "k"
 
  I don't mind people taking inspiration from my skins! Please do not copy directly from my skins - I don't make big deals out of it, but I will perma hide you. I put lots of time and care into my skins and it does kinda bum me out to see someone yoinking it.
 
